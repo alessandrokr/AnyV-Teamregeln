@@ -25,6 +25,7 @@ Hierzu gilt:
 23. Die Meinung anderer ist zu akzeptieren und hinzunehmen. Keine Wiedersprüche.
 24. Jede Religion ist zu akzeptieren. Es dürfen jedoch keine stark religiösen Äußerungen angewandt werden.
 25. Es muss Aufforderungen von höherrangigen Personen gefolgt werden. Ohne Wiedersprüche. Vorschläge können geäußert werden.
+26. Solltest du länger als einen Tag nicht online kommen können, melde dich bitte ab.
 
 ➜ __Nach einer Verwarnung hat man höchstens 2 Stunden Zeit, etwas dagegen zu unternehmen.__
 
